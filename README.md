@@ -8,3 +8,6 @@
 
 ## Admission Certificate
 ![KSC Admission](./20220207_135842.jpg)
+
+## KSC International Academy Brazilian Representant (KSCIA)
+![KSCIA Admission](./20220207_140447.jpg)
